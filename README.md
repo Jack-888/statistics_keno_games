@@ -1,0 +1,2 @@
+# Statistics keno games
+Info
